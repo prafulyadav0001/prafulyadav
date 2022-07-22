@@ -5,7 +5,7 @@
     👬    I'm looking to collaborate on Web-Dev/adroid development/iosdevelopment.
     📚    I'm currently learning AI.
     ♟️    Fun Fact- I'll be happy to code with you.
-Hi, I am Praful Yadav...I am a 2nd year student pursuing my B-tech degree in Computer Science from GLA UNIVERSITY,MATHURA. I'll be happy to collaborate on Projects with you.
+Hi, I am Praful Yadav...I am a 3rd year student pursuing my B-tech degree in Computer Science from GLA UNIVERSITY,MATHURA. I'll be happy to collaborate on Projects with you.
 
 
 ### Coding Platforms
